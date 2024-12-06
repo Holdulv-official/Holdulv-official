@@ -12,7 +12,7 @@ A multi-faceted tech enthusiast with diverse interests and a passion for creativ
 
 ## Find My Links
 
-To access all my latest projects, social media profiles, and more, visit my [official website](https://holdulvlinks.eu.org/new).
+To access all my latest projects, social media profiles, and more, visit my [official website](https://holdulvlinks.eu.org).
 
 ---
 
